@@ -2,6 +2,7 @@ a account made for 𝖿ᥙᥒ.
 
 Luci ୨୧ . Meilu , Xe/Xem
 bisexual ⑅ duckling's 
+https://wilardo.crd.co/assets/images/gallery05/b9985563_original.png?v=a9ab673e
 
 INT FREELY!! hb & hh fandom intwc ♡ . please treat me like a actual person, im not the charecter literally. NO RP!
 
